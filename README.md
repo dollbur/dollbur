@@ -9,7 +9,7 @@ i'm wss (wilbur soot support) but i do not condone or support abuse whatsoever.
 wss = supporting wilbur in getting better. < i also wish the best for shelby, too.
 if me being wss makes you uncomfortable, you're free to block. don't int.
 
-!(toxic wss & sss)[https://rentry.co/toxwssnsss] please dni ! 
+[toxic wss & sss](https://rentry.co/toxwssnsss) please dni ! 
 
 c+h is always allowed, and feel free to add me anywhere! i'm VERY friendly!!!!
 
