@@ -7,7 +7,7 @@ being friends with EVERYBODY!!!!! on the smp hill YOURE ALL MY BESTFRIENDS I LOV
 if you're seeing this, PLEASE sign my ata or strawpage !! i'd appreciate it a lot grins
 
 i'm wss (wilbur soot support) but i do not condone or support abuse whatsoever.
-^ i also do not believe that WILBUR was the victim, as many wss seem to think.
+i also do not believe that WILBUR was the victim, as many wss seem to think.
 wss = supporting wilbur in getting better. < i also wish the best for shelby, too.
 if me being wss makes you uncomfortable, you're free to block. don't int.
 
