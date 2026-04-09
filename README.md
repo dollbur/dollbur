@@ -9,8 +9,8 @@ if you're seeing this, PLEASE sign my ata or strawpage !! i'd appreciate it a lo
 i have audhd , bpd & anxious attachment. please be aware of this when talking to me! i
 don't require tonetags, but if i don't immediately get something, please try to be patient.
 i'm trying my hardest. i also have arthritis, which means i might
-leave online convos / games frequently to go rest. it isn't
-anything against the person i'm talking to, i'm in genuine pain and need a break sometimes because my joints get stiff.
+leave convos / games frequently to go rest. it isn't
+anything against the person i'm with, i'm in genuine pain and need a break sometimes because my joints get stiff.
 
 i'm wss (wilbur soot support) but i do not condone or support abuse whatsoever.
 i also do not believe that WILBUR was the victim, as many wss seem to think.
