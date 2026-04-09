@@ -19,4 +19,4 @@ see tombur dude ??!?? i see myself as wilb and my friend as tommy . and he is li
 brother to me. I WOULD RATHERDIEEEEEthan like tombur. i make jokes about it, but that doesn't 
 mean that i personally like it. PLEASE!!!!! don't spread rumours around that i like that stuff.
 
-[![header](tumblr_0080331e23ec7317e96214e4bd2c3eed_0b16730a_100.webp)]()
+[![header](tumblr_16addfa05d4eb55bc220480c49018d9b_710b670f_2048.png)]()
