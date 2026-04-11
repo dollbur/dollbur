@@ -1,7 +1,7 @@
 [![header](tumblr_524d1b96add71d3d1543c24d01bd545c_cdb3a31d_2048.png)]()
 
 HELLO!!! i am wilbur ૮₍ ´ ꒳ `₎ა
-you're probably here from ponytown. i mostly sit on the SMP hill! come say hi :D 
+you're probably here from ponytown. i mostly sit on the SMP hill on the safe server! come say hi :D 
 i'm very friendly... if i'm not friends with u peleaseeeplease int with me i love
 being friends with EVERYBODY!!!!! on the smp hill YOURE ALL MY BESTFRIENDS I LOVE U!!!
 if you're seeing this, PLEASE sign my ata or strawpage !! i'd appreciate it a lot grins
