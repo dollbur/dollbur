@@ -27,6 +27,6 @@ see tombur dude ??!?? i see myself as wilb and my friend as tommy . and he is li
 brother to me. I WOULD RATHERDIEEEEEthan like tombur. i make jokes about it, but that doesn't 
 mean that i personally like it. PLEASE!!!!! don't spread rumours around that i like that stuff.
 
-i love my boyfriend + friends !! they're the best u see? yea? ૮ • ﻌ - ა
+i love my friends !! they're the best u see? yea? ૮ • ﻌ - ა
 
 [![header](tumblr_16addfa05d4eb55bc220480c49018d9b_710b670f_2048.png)]()
