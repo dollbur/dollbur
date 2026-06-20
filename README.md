@@ -12,10 +12,9 @@ i'm trying my hardest. i also have arthritis, which means i might
 leave convos / games frequently to go rest. it isn't
 anything against the person i'm with, i'm in genuine pain and need a break sometimes because my joints get stiff.
 
-i'm wss (wilbur soot support) but i do not condone or support abuse whatsoever.
-i also do not believe that WILBUR was the victim, as many wss seem to think.
-wss = supporting wilbur in getting better. < i also wish the best for shelby, too.
-if me being wss makes you uncomfortable, you're free to block. don't int.
+i'm nwss and i don't enjoy talking much about the subject <- yes i was wss, but i basically
+only considered myself as such because i 'supported' him by listening to his music etc, 
+but i do NOT support him in the situation with shubble,,, and am therefore not wss
 
 [toxic wss & sss](https://rentry.co/toxwssnsss) please dni ! 
 
