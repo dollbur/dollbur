@@ -12,19 +12,8 @@ i'm trying my hardest. i also have arthritis, which means i might
 leave convos / games frequently to go rest. it isn't
 anything against the person i'm with, i'm in genuine pain and need a break sometimes because my joints get stiff.
 
-i'm nwss and i don't enjoy talking much about the subject <- yes i was wss, but i basically
-only considered myself as such because i 'supported' him by listening to his music etc, 
-but i do NOT support him in the situation with shubble,,, and am therefore not wss
-
-[toxic wss & sss](https://rentry.co/toxwssnsss) please dni ! 
-
+wss of any degree PLEASE dni ! 
 c+h is always allowed, and feel free to add me anywhere! i'm VERY friendly!!!!
-
-also. i can't believe i'm having to put this here - but I'M NOT A TOMBUR SHIPPER!!!
-somebody's been spreading things around saying that i am, i'm not. i feel ILL!! when i
-see tombur dude ??!?? i see myself as wilb and my friend as tommy . and he is like a little
-brother to me. I WOULD RATHERDIEEEEEthan like tombur. i make jokes about it, but that doesn't 
-mean that i personally like it. PLEASE!!!!! don't spread rumours around that i like that stuff.
 
 i love my friends !! they're the best u see? yea? ૮ • ﻌ - ა
 
