@@ -14,7 +14,8 @@ anything against the person i'm with, i'm in genuine pain and need a break somet
 
 wss of any degree PLEASE dni ! 
 c+h is always allowed, and feel free to add me anywhere! i'm VERY friendly!!!!
+I AM SLIMEBUR/WILCICLE CEO!!! I LVOE SLIMEBUR!!! SLIMECICLES PLEASE ALWAYSALWAYS INTERACT AND C+H ME I LOVE U GUYSSO MUCH 
 
-i love my friends !! they're the best u see? yea? ૮ • ﻌ - ა
+i love my my bf + friends !! they're the best u see? yea? ૮ • ﻌ - ა
 
 [![header](tumblr_16addfa05d4eb55bc220480c49018d9b_710b670f_2048.png)]()
