@@ -14,7 +14,7 @@ anything against the person i'm with, i'm in genuine pain and need a break somet
 
 wss of any degree PLEASE dni ! 
 c+h is always allowed, and feel free to add me anywhere! i'm VERY friendly!!!!
-im a VERY big slimebur fan!!!! slimecicles please please interact i love u guys very much ++ u can c+h without asking :)
+im also a VERY big slimebur fan!!!! slimecicles please please interact i love u guys very much ++ u can c+h without asking :)
 
 i love my my bf + friends !! they're the best u see? yea? ૮ • ﻌ - ა
 
